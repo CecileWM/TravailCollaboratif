@@ -8,3 +8,5 @@ et bon bientot
 
 Aïe aïe aïe, c'est bientôt terminé
 # Mais c'est dur quand même!
+
+MERCI POUR CE MOMENT
