@@ -6,5 +6,4 @@ Et bon entendu à tous bien vent
 A apres midi
 et bon bientot
 
-#C'est dur la collaboration 
-#Je vous assure c'est dur!!
+Aïe aïe aïe, c'est bientôt terminé
